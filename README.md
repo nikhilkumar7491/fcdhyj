@@ -32,7 +32,7 @@
 
 - My favourite os [kali linux](https://www.kali.org/)
 
-- FOR am.dog/Aruacksupport)
+
 
 
 
